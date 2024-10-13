@@ -5,3 +5,5 @@ I can show you incredible things.
 Magic,madness,heaven,sin. 
 And I know you heard about me.
 So hey let's be friends!
+I'm dying to see, how this one ends.
+
